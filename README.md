@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Lee!
-- 👀 I'm a recruiter for Life Science or Healthcare industries
+- 👀 I'm a Life Sciences recruiter!
 - 📫 How to reach me Lee.Quiray@hppstaffing.com
 
 
